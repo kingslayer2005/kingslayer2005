@@ -1,0 +1,6 @@
+- 👋Hello Everyone, I am Aarush 
+- 👀 I'm interested in Development and Data Analysis (ps:- not too sure about exact things :p)
+- 🌱 I’m currently learning everything 🤣
+- 💞️ I’m looking to collaborate with likeminded individuals in my domain and world of computer science engineering 
+- 📫 How to reach me: Linkedin- Aarush Gupta    Instagram:-aarushx05
+- 😄 Pronouns: he/him
